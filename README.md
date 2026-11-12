@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="720" height="720" alt="Good_ _D" src="https://github.com/user-attachments/assets/4625f07d-ae22-4b1c-831a-e14ac2b79c75" />
+<img width="220" height="220" alt="images (7)" src="https://github.com/user-attachments/assets/b4f23bea-181d-46f2-b687-1a168ad85234" />
 
 
 # GOOD AIKAWA
