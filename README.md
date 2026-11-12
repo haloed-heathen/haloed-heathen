@@ -13,9 +13,9 @@
 
 **WELCOME TO MY PROFILE!**
 
-a little corner of the internet.
+yaoiful times!!
 
-[ about me ] · [ interests ] · [ credits ]
+[ about me ] · [ interests ] 
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
@@ -24,9 +24,9 @@ a little corner of the internet.
 ## ✦ ABOUT ME
 
 hello! i'm Good, an artist who spends a concerning
-amount of time thinking about fictional characters.
+amount of time thinking about fictional characters! I'm a fictionkin with... a lot of characters, and a polyminds of Good Aikawa, and all of his alters.
 
-currently fixated on Good Aikawa!
+currently Good Aikawa!
 
 ## ☀ INTERESTS
 
