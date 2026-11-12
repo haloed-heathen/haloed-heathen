@@ -1,16 +1,58 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**haloed-heathen/haloed-heathen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="720" height="720" alt="Good_ _D" src="https://github.com/user-attachments/assets/4625f07d-ae22-4b1c-831a-e14ac2b79c75" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# GOOD AIKAWA
+### ✦ a little piece of heaven ✦
+
+`GOOD` ・ `POLYMIND` ・ `ANGELIC`
+
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+**WELCOME TO MY PROFILE!**
+
+a little corner of the internet.
+
+[ about me ] · [ interests ] · [ credits ]
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+</div>
+
+## ✦ ABOUT ME
+
+hello! i'm Good, an artist who spends a concerning
+amount of time thinking about fictional characters.
+
+currently fixated on Good Aikawa!
+
+## ☀ INTERESTS
+
+- Good Aikawa + alters
+- Object shows
+- Digital art
+- Character design
+- Animation
+
+## ♡ STATUS
+
+
+MOOD     : HAPPY!
+
+STATUS   : SEMI-ONLINE
+
+THOUGHTS : ?
+
+<div align="center">
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+I HAVE A BOMB STRAPPED TO MY CHEST
+
+☀️
+
+GOOD AIKAWA — 2026
+
+</div>
