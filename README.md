@@ -47,6 +47,12 @@ THOUGHTS : ?
 
 <div align="center">
 
+
+
+<img width="485" height="36" alt="Screenshot 2026-11-14 12 23 29 PM" src="https://github.com/user-attachments/assets/e937f9e8-6c45-4e1e-8520-d9e35bb5ecc8" />
+
+
+
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 I HAVE A BOMB STRAPPED TO MY CHEST
